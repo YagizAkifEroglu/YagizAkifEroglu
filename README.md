@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @YagizAkifEroglu
+- 👀 I’m interested in software
