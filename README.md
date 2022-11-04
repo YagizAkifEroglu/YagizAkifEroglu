@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @YagizAkifEroglu
-- 👀 I’m interested in software
+Discord Yağız#1543
